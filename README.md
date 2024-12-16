@@ -21,6 +21,6 @@ Ana: Com certeza. E agora, vamos ser intencionais. Quero que os nossos filhos cr
 
 João: Vamos fazer isso juntos, sempre. Afinal, a nossa família vai ser exemplo de resistência e amor pela nossa identidade."
 Link do podcast do ElevenLabs
-
+https://github.com/Niele-creator/Podcast-AI/blob/main/VID-20241216-WA0002.mp4
 
  
